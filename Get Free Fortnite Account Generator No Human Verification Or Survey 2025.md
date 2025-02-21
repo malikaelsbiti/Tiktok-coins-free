@@ -2,7 +2,7 @@
 <br>
 <br>5 sec ago... CHECK LINK BELOW FOR FREE ACCOUNTS
 <br>
-<br> https://igenerator.site/all.html
+<br> https://shorturl.at/6GMHn
 
 <br>
 <br>Free Fortnite Account Generator Email And Password
