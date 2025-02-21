@@ -6,10 +6,10 @@
 <br>
 <br>Fun run 3 cheats Fun run generator **Fun run coin generator - The Fun run arena 3 hack surroundings is the area eight furries battle in opposition to elimination in a addicting recreation mode!
 <br>
-<br>Click here 👉👉 https://igenerator.site/all.html
+<br>Click here 👉👉 https://shorturl.at/6GMHn
 
 <br>
-<br>Click here 👉👉 https://igenerator.site/all.html
+<br>Click here 👉👉 https://shorturl.at/6GMHn
 
 <br>
 <br>Solely the quickest Three attain the conclusion line for wonderful rewards and supreme glory. Immediately may be the race day, on that you just change in to the victorious and fulfill your future to be one of the numerous winners who attain the ARENA CHAMPION podium. It continues the story of the Fun run saga series. Likewise, you can race against eight random players or friends and family inside on tracks with obstacles. The winner reaches the CHAMPION podium and races with others to own coins and gems as rewards. 
