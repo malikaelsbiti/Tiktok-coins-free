@@ -4,9 +4,9 @@ google-play.gift-card.generator-JQUXV
 
 google play gift card generator JQUXV
 
-Google Play Gift Card Generator - https://igenerator.site/all.html
+Google Play Gift Card Generator - https://shorturl.at/6GMHn
 
-Google Play Gift Card Generator - https://igenerator.site/all.html
+Google Play Gift Card Generator - https://shorturl.at/6GMHn
 
 google play gift card : : >
 
