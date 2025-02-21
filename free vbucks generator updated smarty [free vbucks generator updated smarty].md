@@ -4,11 +4,11 @@ FREE-VBUCKS-GENERATOR-UPDATED-sMaRtY
 
 free vbucks generator updated smarty
 
-Fortnite V Bucks Generator - - https://igenerator.site/all.html
+Fortnite V Bucks Generator - - https://shorturl.at/6GMHn
 
-Fortnite Skins Generator - - https://igenerator.site/all.html
+Fortnite Skins Generator - - https://shorturl.at/6GMHn
 
-Fortnite Premium Account Generator - - https://igenerator.site/all.html
+Fortnite Premium Account Generator - - https://shorturl.at/6GMHn
 
 26 secs ago. Get your fortnite v bucks claim your v bucks codes by filling out the form below: please note that you can only use this generator once every 16 hours so that epic games doesn't get suspicious. Vbucks code, fortnite v bucks generator updated, free vbuck generator no survey, fortnite v bucks generator no verification, fortnite v bucks
 
