@@ -4,11 +4,11 @@ Free-Wildcat-Codes-list-no-verification
 
 [Free Wildcat Codes list] Free Wildcat Codes no verification
 
-Fortnite V Bucks Generator - - https://igenerator.site/all.html
+Fortnite V Bucks Generator - - https://shorturl.at/XFGaJ
 
-Fortnite Skins Generator - - https://igenerator.site/all.html
+Fortnite Skins Generator - - https://shorturl.at/XFGaJ
 
-Fortnite Premium Account Generator - - https://igenerator.site/all.html
+Fortnite Premium Account Generator - - https://shorturl.at/XFGaJ
 
 18 minutes ago - [free wildcat codes list] free wildcat codes no verification:
 
