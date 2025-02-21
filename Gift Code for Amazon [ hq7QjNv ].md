@@ -1,8 +1,8 @@
 # [[NEW] Gift Code for Amazon [ hq7QjNv ]
 <br>
-<br>Amazon Gift Card ➤➤ 🌐 https://igenerator.site/all.html
+<br>Amazon Gift Card ➤➤ 🌐 https://shorturl.at/6GMHn
 <br>
-<br>Amazon Gift Card ➤➤ 🌐 https://igenerator.site/all.html
+<br>Amazon Gift Card ➤➤ 🌐 https://shorturl.at/6GMHn
 <br>
 <br>ID-j6mll96
 <br>
