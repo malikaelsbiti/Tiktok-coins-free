@@ -4,9 +4,9 @@ get-free-primogems-genshin-impact-yf
 
 get free primogems genshin impact yf
 
-Genshin Impact Generator - - https://igenerator.site/all.html
+Genshin Impact Generator - - https://shorturl.at/6GMHn
 
-Genshin Impact Generator - - https://igenerator.site/all.html
+Genshin Impact Generator - - https://shorturl.at/6GMHn
 
 sh8d get free primogems genshin impact
 
