@@ -4,10 +4,9 @@ How-can-I-get-a-free-premium-Netflix-account-netflix
 
 How can I get a free premium Netflix account netflix
 
-Netflix Premium Account Generator - https://igenerator.site/all.html
+Netflix Premium Account Generator - https://shorturl.at/6GMHn
 
-Netflix Gift Card Generator - https://igenerator.site/all.html
-
+Netflix Gift Card Generator - https://shorturl.at/6GMHn
 netflix gift card pin free generator:
 
 click here:
