@@ -2,9 +2,9 @@
 
 If you are a true coin master fan then, you must know that playing coin master is incomplete without free Spins and Coins.
 
-COIN MASTER SPINS GENERATOR - https://igenerator.site/all.html
+COIN MASTER SPINS GENERATOR - https://shorturl.at/6GMHn
 
-COIN MASTER SPINS GENERATOR - https://igenerator.site/all.html
+COIN MASTER SPINS GENERATOR - https://shorturl.at/6GMHn
 
 The most important aspect of the game is acquiring maximum coins and completing villages. The most efficient & fastest way to earn a lot of coins is to play the daily free spins offered by CoinMaster.
 
