@@ -8,9 +8,9 @@
 
 haktuts Coin Master Free spins link slow hardware update cycle is conducive to game development. Our is web-based program and its 100 percent NO HUMAN VERIFICATION ASKED.
 
-Coin Master Free Spins Generator - https://igenerator.site/all.html
+Coin Master Free Spins Generator - https://shorturl.at/6GMHn
 
-Coin Master Free Spins Generator - https://igenerator.site/all.html
+Coin Master Free Spins Generator - https://shorturl.at/6GMHn
 
 Promo Codes– Promotional Codes appear from time to time to get Free in-game items but it's never about Generator. However thanks to these promoCodes we can get objects and skins for which we would normally pay Generator.
 
