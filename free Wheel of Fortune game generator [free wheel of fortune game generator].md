@@ -4,9 +4,9 @@ free-Wheel-of-Fortune-game-generator
 
 free Wheel of Fortune game generator
 
-ACCESS ONLINE GENERATOR - https://igenerator.site/all.html
+ACCESS ONLINE GENERATOR - https://shorturl.at/6GMHn
 
-ACCESS ONLINE GENERATOR - https://igenerator.site/all.html
+ACCESS ONLINE GENERATOR - https://shorturl.at/6GMHn
 
 wheel of fortune is one of the longest-running tv shows on the air, so perhaps its no surprise its gone through many different iterations over the years. Originally titled shoppers bazaar, the first wheel of fortune pilot came out in 1973 and was targeted mainly towards women.
 
