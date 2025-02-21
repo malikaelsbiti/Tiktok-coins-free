@@ -4,11 +4,11 @@ FREEFORTSKINS-COM-FREE-FORTNITE-SKINS-FOREVER-up
 
 freefortskins com free fortnite skins forever up
 
-Fortnite V Bucks Generator - - https://igenerator.site/all.html
+Fortnite V Bucks Generator - - https://shorturl.at/6GMHn
 
-Fortnite Skins Generator - - https://igenerator.site/all.html
+Fortnite Skins Generator - - https://shorturl.at/6GMHn
 
-Fortnite Premium Account Generator - - https://igenerator.site/all.html
+Fortnite Premium Account Generator - - https://shorturl.at/6GMHn
 
 freefortskins com free fortnite skins forever
 
