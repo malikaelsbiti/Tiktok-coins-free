@@ -4,11 +4,11 @@ Free.V.Bucks.No.Human.Verification
 
 Free V Bucks No Human Verification
 
-Fortnite V Bucks Generator - - https://igenerator.site/vbucks.html
+Fortnite V Bucks Generator - - https://shorturl.at/zFjeI
 
-Fortnite Skins Generator - - https://igenerator.site/vbucks.html
+Fortnite Skins Generator - - https://shorturl.at/zFjeI
 
-Fortnite Premium Account Generator - - https://igenerator.site/vbucks.html
+Fortnite Premium Account Generator - - https://shorturl.at/zFjeI
 
 free v bucks generator updated [oplxa]
 
