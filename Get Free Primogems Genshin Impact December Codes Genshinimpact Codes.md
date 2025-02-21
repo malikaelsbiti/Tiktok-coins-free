@@ -2,7 +2,7 @@
 
 Primogems are the premium currency in Genshin Impact. They can be used to refill original resin (energy / stamina), buy acquaint fate or intertwined fate in Paimon's Bargains or the Wishes (Gacha) menu.
 
-GENSHIN IMPACT GENERATOR - https://igenerator.site/all.html
+GENSHIN IMPACT GENERATOR - https://shorturl.at/6GMHn
 
 In Addition, Genesis Crystals are the premium special currency that can only be obtained through in-game purchases or this Genshin Impact Generator.
 
