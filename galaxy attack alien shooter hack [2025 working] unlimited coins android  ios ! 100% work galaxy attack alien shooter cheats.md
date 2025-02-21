@@ -4,9 +4,9 @@ galaxy-attack-alien-shooter-cheats
 
 galaxy attack alien shooter cheats
 
-ACCESS ONLINE GENERATOR - https://igenerator.site/all.html
+ACCESS ONLINE GENERATOR - https://shorturl.at/6GMHn
 
-ACCESS ONLINE GENERATOR - https://igenerator.site/all.html
+ACCESS ONLINE GENERATOR - https://shorturl.at/6GMHn
 
 galaxy attack: alien shooter hack mod apk get unlimited coins cheats generator ios android
 
