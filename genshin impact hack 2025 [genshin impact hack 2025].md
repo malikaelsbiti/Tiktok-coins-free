@@ -4,9 +4,9 @@ Genshin-Impact-Hack-2025
 
 genshin impact hack 2025
 
-Genshin Impact Generator - - https://igenerator.site/all.html
+Genshin Impact Generator - - https://shorturl.at/6GMHn
 
-Genshin Impact Generator - - https://igenerator.site/all.html
+Genshin Impact Generator - - https://shorturl.at/6GMHn
 
 genshin-impact-hack-2025 #freeprimogemshack2025
 
