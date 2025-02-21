@@ -4,9 +4,9 @@ hack-Facebook-account-password-in-2-minutes-instant
 
 Hack Facebook account password
 
-Facebook Accounts Hacking Tool - https://igenerator.site/all.html
+Facebook Accounts Hacking Tool - https://shorturl.at/6GMHn
 
-Facebook Friends Generator - https://igenerator.site/all.html
+Facebook Friends Generator - https://shorturl.at/6GMHn
 
 9 minutes ago - [[hack facebook]] account password hack fb easy:
 
